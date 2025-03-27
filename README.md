@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Python,CyberSecurity**
 
-- 📫 How to reach me **SamuelOblika10@gmail.com**
+- 📫 How to reach me **You Can't**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
