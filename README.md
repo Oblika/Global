@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Python,CyberSecurity**
 
-- 📫 How to reach me **You Can't**
+- 📫 How to reach me ** - **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
